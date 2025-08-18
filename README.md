@@ -62,7 +62,7 @@ Highly adaptable, quick to embrace new technologies, and effective in cross-func
 
 ## 🌐 Connect With Me
 **[www.linkedin.com/in/neha-prabhakar26]**
-📧 Email: **[nehaprabhakar2605@example.com]**
+📧 Email: **[nehaprabhakar2605@gmail.com]**
 
 ---
 
